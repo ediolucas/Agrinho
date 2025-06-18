@@ -1,1 +1,1 @@
-# Agrinho
+# Agrinho O texto fala sobre a importância da conexão entre o campo e a cidade para um futuro sustentável. O campo produz alimentos e recursos naturais, enquanto a cidade oferece tecnologia, infraestrutura e educação. Juntos, podem promover desenvolvimento equilibrado, com inovações como drones na agricultura e infraestrutura urbana eficiente. A educação é essencial para conscientizar sobre sustentabilidade em ambos os espaços.
